@@ -3,13 +3,7 @@
 
 ### 👾 Nour El Houda El Majdoub
 
-Not sure what to write without sounding weird :3  
-Software engineering student, mostly doing AI things 
-Trying to make cool stuff… hope you can find something you can use!
-
-Kinda have some cool stuff over here , i keep the silly ones private :3
-
-📬 I sound way more professional over here ⬇️  
+Hope you find sth useful here
 🔗 [LinkedIn](https://linkedin.com/in/nour-el-majdoub-aa49322a6/)
 ## 🧰 Tech Stack
 
