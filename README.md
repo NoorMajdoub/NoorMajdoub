@@ -3,7 +3,7 @@
 
 ### 👾 Nour El Houda El Majdoub
 
-Hope you find sth useful here
+
 🔗 [LinkedIn](https://linkedin.com/in/nour-el-majdoub-aa49322a6/)
 ## 🧰 Tech Stack
 
