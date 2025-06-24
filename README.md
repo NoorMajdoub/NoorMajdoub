@@ -1,7 +1,6 @@
 
 
 
-### 👾 Nour El Houda El Majdoub
 
 
 🔗 [LinkedIn](https://linkedin.com/in/nour-el-majdoub-aa49322a6/)
